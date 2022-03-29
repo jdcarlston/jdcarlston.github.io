@@ -9,7 +9,7 @@
 * [When Quality is Important](https://jdcarlston.medium.com/when-quality-is-important-6cda3e3099e)
 
 ## Poetry
-* [jdcarlston.medium.com](jdcarlston.medium.com)
+* [jdcarlston.medium.com](https://jdcarlston.medium.com)
 
 ## Painting
 [r0z m4ddr Art](https://www.instagram.com/r0zm4ddr/)
